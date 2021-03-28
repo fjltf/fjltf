@@ -21,4 +21,6 @@ Reddit: [fjltf](https://reddit.com/user/fjltf)
 <br>
 Tiktok: [fjltf](https://tiktok.com/@fjltf)
 <br>
+SoundCloud: [1ij](https://soundcloud.com/1ij)
+<br>
 Whatsapp: [SendMessage](https://wa.me/+962770362823)
