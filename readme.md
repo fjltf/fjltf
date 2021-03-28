@@ -2,7 +2,7 @@
 ![Stats](https://github-readme-stats.vercel.app/api?username=fjltf&show_icons=true&theme=radical)
 <br>
 <br>
-![Lang](https://github-readme-stats.vercel.app/api/top-langs/?username=github&title_color=ffffff&text_color=c9cacc&icon_color=2bbc8a&bg_color=1d1f21)
+![Lang](https://github-readme-stats.vercel.app/api/top-langs/?username=fjltf&title_color=ffffff&text_color=c9cacc&icon_color=2bbc8a&bg_color=1d1f21)
 <br>
 <br>
 ![Views](https://gpvc.arturio.dev/fjltf) 
