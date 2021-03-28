@@ -9,7 +9,7 @@
 <br>
 <br>
 ## Social Media
-Instagram: [@r.rxu](https://instagram.com/r.rxu)
+Instagram: [@fjltf](https://instagram.com/fjltf)
 <br>
 Discord: wx#0001
 <br>
