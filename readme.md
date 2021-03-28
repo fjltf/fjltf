@@ -15,6 +15,10 @@ Github: [fjltf](https://github.com/fjltf)
 <br>
 Telegram: [fjltf](https://t.me/fjltf)
 <br>
-Tiktok: [fjltf](https://tiktok.com/@fjltf)
+Twitch: [fjltf](https://twitch.tv/fjltf)
 <br>
 Reddit: [fjltf](https://reddit.com/user/fjltf)
+<br>
+Tiktok: [fjltf](https://tiktok.com/@fjltf)
+<br>
+Whatsapp: [SendMessage](https://wa.me/+962770362823)
