@@ -9,10 +9,12 @@
 <br>
 <br>
 ## Social Media
-Instagram: [@fjltf](https://instagram.com/fjltf)
-<br>
-Discord: wx#0001
+Instagram: [fjltf](https://instagram.com/fjltf)
 <br>
 Github: [fjltf](https://github.com/fjltf)
 <br>
 Telegram: [fjltf](https://t.me/fjltf)
+<br>
+Tiktok: [fjltf](https://tiktok.com/@fjltf)
+<br>
+Reddit: [fjltf](https://reddit.com/user/fjltf)
